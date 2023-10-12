@@ -1,5 +1,4 @@
 # HoangLongGym
-Gym
 Gym là viết tắt của từ Gymnastic dịch nghĩa là Phòng tập thể dục. Theo đó, gym có nghĩa là các hoạt động liên quan đến các việc tập thể dục, thể thao trong nhà. Tóm lại, tập thể dục là gì, tập gym là gì hay máy tập gym là gì? Tập gym là tập thể hình để có một thân hình đẹp và săn chắc. Với nhiều người tập gym là phương pháp bảo vệ và nâng cao sức khỏe. Từ đây khái niệm gymer ra đời. Gymer là từ dành để chỉ những người tập thể hình ở trong một không gian rộng, thoáng với nhiều các thiết bị, máy móc tập luyện…
 
 Điều đầu tiên phải kể đến đó là tập Gym giúp bạn tăng cường cơ bắp. Bạn biết không, trong cơ thể cơ bắp có khối lượng nặng hơn mỡ nhưng mỡ lại chiếm thể tích nhiều hơn. Do đó, việc tập gym đúng cách sẽ giúp cơ thể trở nên săn chắc. Lúc này, cơ thể khi được vận động với cường độ cao, cùng chế độ ăn uống dinh dưỡng sẽ giúp phát triển các khối cơ. Và tất nhiên thân hình cũng vì thế mà trở nên gọn gàng hơn.
