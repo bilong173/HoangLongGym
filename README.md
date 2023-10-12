@@ -15,21 +15,21 @@ Tập luyện Gym thường xuyên và đều đặn tốt cho quá trình lưu 
 Ngoài những lợi ích về sức khỏe, tập Gym đem lại nhiều lợi ích cho tinh thần. Nó được xem là một trong các phương pháp giúp giải tỏa căng thẳng và lo âu. Nếu công việc của bạn quá căng thẳng và áp lực thì mỗi ngày hãy dành một ít thời gian để tập luyện gym nhé. Khi vận động, những căng thẳng trong bạn sẽ thuyên giảm hữu hiệu và đáng kể.
 
 Để việc tập luyện trở nên có hiệu quả tốt và không tốn quá nhiều tiền bạc thời gian phung phí thì bạn nên xác định rõ mục tiêu tập luyện của mình là gì. Ngoài câu hỏi tập gym là gì bạn cần đặt cho mình câu hỏi tập gym để được gì. Việc thiết lập cho mình một mục tiêu là hết sức cần thiết.
-Gồm :
+
 Tập để giảm cân.
 Tập để có một cơ thể săn chắn, thân hình đẹp.
 Tập để rèn luyện sức khỏe.
 Tập để tăng cân.
 Hay chỉ đơn giảm tập để giải tỏa stress, căng thẳng trong công việc.
 Tập gym rất tốt tuy nhiên nếu tập không đúng kỹ thuật dễ xảy ra trấn thương. Để tránh những sai sót, bạn nên lưu ý:
-Gồm :
+
 Không nên tập một cách quá sức.
 Nên hỏi huấn luyện viên về các tư thế chuẩn để tránh chấn thương.
 Nên kiên trì và duy trì tinh thần thoải mái khi tập luyện.
 Bổ sung đầy đủ chất dinh dưỡng trước khi tập luyện.
 
 “Có công mài sắt có ngày nên kim”, việc tập luyện cũng thế. Để đem lại hiệu quả tốt cần xây dựng cho bản thân những nguyên tắc cơ bản:
-Gồm :
+
 Lên một kế hoạch tập luyện rõ ràng, khoa học, hợp lý.
 Giữ vững tinh thần hăng say tập luyện, tránh sự mệt mỏi.
 Tập trung cao vào các bài tập không nên bị phân tâm quá nhiều.
